@@ -1,4 +1,5 @@
 NOVEMBER 2026
+12 NOV 2026 — NEWS PUBLISHING TESTING IN 1 0 5 REPO: This NEWS is being published in 1 0 5 repo where it is simulating the final repo itsel which is echshelp repo. the publsihed this news will be seen in launched website itsle but with in 105 using a sepearte link.
 10 NOV 2026 — ADDING NEWS TO 5 NOV 26 NEWS IN 1 0 5 TEST REPO: 1 0 5 TEST REPO IS TRYING TO MIRROR ACTUAL WEBSITE CONDITIONS. A 2 ND NEWS ITEM IS BEING ENTERED AND SEE WHETHER NEW NEWS GETS SEEN ABOVE 5 NOV 26 1 ST NEWS OF WEBSITE
 05 Nov 2026
 FROM CDR V K SANTHANAM (Retd) TO EVERY ECHS BENEFICIARY & FAMILY MEMBER — A MAJOR INITIATIVE FOR YOU IS NOW JUST ONE CLICK AWAY! Have you ever faced an ECHS-related question and wondered where to find the correct information? Imagine having a single Digital Destination where easy to understand Integrated Information is brought just ONE Screen. That is what my MORE THAN a Website HELPING HANDS FOR ECHS brings to you today onwards.
